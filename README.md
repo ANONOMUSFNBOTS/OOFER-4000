@@ -1,3 +1,4 @@
+<p align="center">Join my discord server https://discord.gg/7kx3Bdp </p>
 <p align="center">Oofer 4000</p>
 <p align="center">Coded by Dannyg82 GFX#6787 and thaught of by TableFlipGod#2442</p>
 
